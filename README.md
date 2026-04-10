@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BOOMSHAKALAKAVES (Kevin)
+- 👋 Hi, I’m @BOOMSHAKALAKAVES
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on (Hasn't decided)
